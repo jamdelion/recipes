@@ -50,9 +50,10 @@ Time:
 4. Drain the pasta and put in a large oven proof dish, with plenty of room for the sauce.
 5. Add the fried onions, raw courgette pieces and fresh spinach, and mix into the pasta.
 6. Pour the cheese sauce onto the pasta, and stir thoroughly.
-7. Top the dish with breadcrumbs and/or grated cheese.
-8. Bake in the oven for 20-30 minutes.
+> It's fine if it's slightly swimming in sauce. If the pasta has been cooked correctly, then it should absorb a fair bit of the sauce, and release its starch for extra creaminess. 🤤
+8. Top the dish with breadcrumbs and/or grated cheese.
+9. Bake in the oven for 20-30 minutes.
 
-> Or until slightly crispy on top.
+> Or until slightly crispy and bubbling on top.
 
 9. Serve and enjoy!
