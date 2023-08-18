@@ -29,7 +29,7 @@ Time:
 
 ### For the mint yoghurt:
 
-- Greek style soya yoghurt | 500g tub
+- Soya yoghurt (greek style without sugar is best - check the ingredients) | 500g tub
 - Fresh coriander leaves | 30g
 - Fresh mint leaves | 30g
 - Juice of 2-3 limes
