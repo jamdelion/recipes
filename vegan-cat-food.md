@@ -11,7 +11,7 @@ Time:
 
 ### For the seitan chunks (makes about 750g):
 
-- Vital wheat gluten | 165g / 1 cup
+- Vital wheat gluten | 165g / 1 cup (optional: sub in some chickpea flour, see below)
 - Nutritional yeast | 15g / 1/4 cup 
 - Chickpea flour | sub in place of some gluten (optional)
 - Water | 180g / 3/4 cup
@@ -43,7 +43,7 @@ Time:
 14. Mix well, then transfer to a clean jar and put in the fridge for serving.
 
 ### A note about our cats:
-We usually feed our cats a teaspoon of vegan cat food per meal (x3 per day), alongside non-vegan meat pouches. 
+We usually feed our cats a teaspoon of vegan cat food alongside a teaspoon of non-vegan meat per meal (x3 per day). 
 
 Whilst we are a vegan household, and extremely skeptical of the pet food industry, we also aren't sure enough about the safety of an all-vegan diet for cats to go full vegan with them. So we have settled for reducing their meat consumption and feeding them vegan [Amicat biscuits](https://veggiepets.com/cats/vegetarian-vegan-cat-food/ami-vegan-cat-food-1-5kg), conventional meat cat food, and this homemade wet food (which one of them loves, the other one tolerates).
 
