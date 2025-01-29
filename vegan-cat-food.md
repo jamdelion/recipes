@@ -45,5 +45,5 @@ Time:
 ### A note about our cats:
 We usually feed our cats a teaspoon of vegan cat food alongside a teaspoon of non-vegan meat per meal (x3 per day). 
 
-Whilst we are a vegan household, and extremely skeptical of the pet food industry, we also aren't sure enough about the safety of an all-vegan diet for cats to go full vegan with them. So we have settled for reducing their meat consumption and feeding them vegan [Amicat biscuits](https://veggiepets.com/cats/vegetarian-vegan-cat-food/ami-vegan-cat-food-1-5kg), conventional meat cat food, and this homemade wet food (which one of them loves, the other one tolerates).
+Whilst we are a vegan household, and extremely skeptical of the pet food industry, we also aren't sure enough about the safety of an all-vegan diet for cats to go full vegan with them. So we have settled for reducing their meat consumption and feeding them vegan [Amicat biscuits](www.veggiepets.com/vegan-cat-food/ami-vegan-cat-food-1-5kg), conventional meat cat food, and this homemade wet food (which one of them loves, the other one tolerates).
 
