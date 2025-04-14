@@ -16,7 +16,7 @@ Time:
 > Yes, really 20!  
 - Fresh ginger, peeled and grated, or cut into thin batons | 60g
 - Cherry tomatoes | 600g
-- Red chilli peppers, scored length-ways | 6
+- Red chilli peppers, scored length-ways | 3
 - Tomato paste | 2 tbsp
 - Ground cumin | 4 tsp
 - Ground coriander | 4 tsp
@@ -29,7 +29,7 @@ Time:
 
 ### For the mint yoghurt:
 
-- Greek style soya yoghurt | 500g tub
+- Soya yoghurt (greek style without sugar is best - check the ingredients) | 500g tub
 - Fresh coriander leaves | 30g
 - Fresh mint leaves | 30g
 - Juice of 2-3 limes
