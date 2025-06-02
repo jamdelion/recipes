@@ -32,15 +32,19 @@ Time:
 3. Leave to rest for 5 minutes.
 4. Knead for 1 minute.
 5. Cut into rough chunks.
-6. Simmer the chunks in a large pot of water over heat for 40 minutes.
-7. Remove the chunks and wait until cooled.
-8. Chop the chunks roughly into tiny pieces, or put in a blender to achieve the same.
-9. Separate the blended chunks into portions of 185g each and freeze all but one.
-10. Move on to making the wet cat food with the last 185g portion.
-11. In a clean bowl, mix the nutritional yeast and the vegecat powder together. 
-12. Add the blended seitan chunks.
-13. Add the olive oil and flax seed oil if using.
-14. Mix well, then transfer to a clean jar and put in the fridge for serving.
+> [!TIP]
+> I've found the easiest way to cut into chunks is using scissors - hack small pieces off directly over a pot of water.
+> 
+> It can help to make the scissor blades wet too.
+7. Simmer the chunks in a large pot of water over heat for 40 minutes.
+8. Remove the chunks and wait until cooled.
+9. Chop the chunks roughly into tiny pieces, or put in a blender to achieve the same.
+10. Separate the blended chunks into portions of 185g each and freeze all but one.
+11. Move on to making the wet cat food with the last 185g portion.
+12. In a clean bowl, mix the nutritional yeast and the vegecat powder together. 
+13. Add the blended seitan chunks.
+14. Add the olive oil and flax seed oil if using.
+15. Mix well, then transfer to a clean jar and put in the fridge for serving.
 
 ## A note about our cats:
 We usually feed our cats a teaspoon of vegan cat food alongside a teaspoon of non-vegan meat per meal (x3 per day). 
